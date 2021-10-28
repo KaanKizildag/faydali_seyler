@@ -1,0 +1,1 @@
+## Bu repositoryde kendime faydalı notlar yazacağım.
